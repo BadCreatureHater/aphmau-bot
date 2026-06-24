@@ -1,2 +1,2 @@
 # aphmau-bot
-The Aphmau bot's API
+© 2026-PRESENT DUMBASS CREATURE HATER STUDIOS
